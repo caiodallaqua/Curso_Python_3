@@ -5,5 +5,3 @@ Para mais conteúdos desse tipo, me siga e <b>[SE INSCREVA](https://www.youtube.
 
 Dúvidas, críticas ou sugestões são muito bem vindas :^)
 
-E, claro, que a programação esteja com você.
-
